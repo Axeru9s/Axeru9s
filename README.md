@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a computer science student aiming to graduate.
+Hi! I'm Axcel Andrei V. Delos Reyesa computer science student aiming to graduate.
 
 
 ## 🌐 Socials:
